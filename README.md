@@ -1,1 +1,2 @@
-#2025 kimyeoreum
+#20242437 kimyeoreum
+#KOOKMIN UNIV. SW.
